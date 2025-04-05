@@ -47,6 +47,8 @@ cmd({
 
 ✦◆◉━━━━━━━━━━━━━━━━━━━━━━━━━━━━━◉◆✦
 
+*_~❖❯❯ 𝗝𝗢𝗜𝗡 𝗠𝗩 𝗖𝗛𝗔𝗡𝗡𝗘𝗟 ➤   https://whatsapp.com/channel/0029VbAddkd0LKZEhAxviz2Y~_*
+
 *_~❖❯❯ 𝗝𝗢𝗜𝗡 𝗠𝗩 𝗚𝗥𝗢𝗨𝗣 ➤   https://chat.whatsapp.com/Lp91cySvXueFChmygbmdCF~_*
 
 *_~❖❯❯ 𝗝𝗢𝗜𝗡 𝗕𝗢𝗧 𝗚𝗥𝗢𝗨𝗣 ➤   https://chat.whatsapp.com/ETnlbJGBTd13TvGhSUIFSq~_*
